@@ -3,6 +3,6 @@
 ## Integrantes
 > Israel Hernández Dorantes - 318206604
 
-> Rubén Acosta Arzate -
+> Rubén Acosta Arzate - 317205776
 
 > Sebastián Gutierrez Median - 318
